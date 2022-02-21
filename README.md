@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @mini45p
+-noob
+-copiar y pegar scripts, mi pasion
